@@ -1,0 +1,14 @@
+In a large pan heat 2 tsp oil and add 1 tsp mustard, ½ tsp cumin, 1 inch ginger;
+Saute and allow to splutter;
+Further add 2 boiled and mashed potato, pressure cook potato for 3 whistles;
+Also add ½ tsp turmeric, ½ tsp chilli powder, ¼ tsp chaat masala and ½ tsp salt;
+Mix and mash potato well;
+Turn off the flame and mix 2 tbsp coriander leaves. Potato masala stuffing is ready;
+Spread green chutney over 2 bread slice;
+Top on one bread slice with 2 slices of onion and 5 slices of tomato;
+Sprinkle a pinch of chaat masala to season vegetables;
+Now spread a tbsp of prepared aloo masala;
+Also top with 2 rings of capsicum and sprinkle chaat masala;
+Cover with another bread slices and spread ½ tsp butter;
+Toast the sandwich with some butter to golden and crisp;
+Spread ½ tsp green chutney and cut the masala toast sandwich into 4 pieces or 6 pieces;
